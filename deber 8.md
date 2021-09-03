@@ -89,9 +89,9 @@ Seleccionar adecuadamente el modelo matemático para la realización de los ejer
 
 ![1022](https://user-images.githubusercontent.com/75336529/131951857-1e82b843-4e59-4bbf-b3c2-c9dbd19ce6e0.jpg)
 
+![1023](https://user-images.githubusercontent.com/75336529/131953983-da1e8bfb-168d-4e69-b293-347b791097a8.jpg)
 
-
-
+![1024](https://user-images.githubusercontent.com/75336529/131954037-d6f8bf7d-b9ed-4b08-ad62-e2e558bc6d42.jpg)
 
 **4.-Video**
 
